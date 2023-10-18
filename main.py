@@ -1,0 +1,1 @@
+papiez gwalcil male dzieci
